@@ -1,3 +1,1 @@
 # Ya molodec
-
-pupsik ofchar
